@@ -1,4 +1,1 @@
-- He/Him
-- Bisexual
-- Roblox Lua retard
-- Lego Exploiter
+- ass
